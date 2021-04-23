@@ -1,0 +1,2 @@
+Ingrediants for Jajangmyeon are :-
+noodle , pork and pork belly , tianmian sauce(sweet bean sauce) , black bean , vegtable(any) , soy sauce , cucumber , courgette , onion and spring onion , mushroom , potatoes , eggs 
